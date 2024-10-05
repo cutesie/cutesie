@@ -1,16 +1,11 @@
-## Hi there 👋
-
-<!--
-**cutesie/cutesie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<h1 align="center"> wip :3 
+</h1>
+<p align="center">
+  <img src="[https://64.media.tumblr.com/5e7fbb7d9471d6bbc990d5979e59a9f0/30541d9dc20b72f0-f7/s540x810/773dafa3e278d4282334720464b69740247f1a78.pnj](https://files.catbox.moe/focpkx.gif)" />
+<p align="center">
+always offtab whisper 2 interact c+h friendly and encouraged :>
+<p align="center">
+.
+<p align="center">
+wipwipwip plssss wyayasysgasdyad~~
+  <p align="center">
